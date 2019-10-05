@@ -1,7 +1,6 @@
 Bitter Taste May Battle Asthma
 
-People with asthma, chronic obstructive pulmonary disease and other breathing disorders need fast relief when their airways tighten up. Unfortunately, the most commonly used medication has obnoxious side effects. But scientists recently discovered that a bitter taste can be a more effective treatment—and now they know why. The work is published in PLoS Biology. [Cheng-Hai Zhang et al., The Cellular and Molecular Basis of Bitter Tastant-Induced Bronchodilation]
-
+People with asthma, chronic obstructive pulmonary disease and other breathing disorders need fast relief when their airways tighten up. Unfortunately, the most commonly used medication has obnoxious side effects. But scientists recently discovered that a bitter taste can be a more effective treatment—and now they know why. The work is published in PLoS Biology. 
 
 
 
