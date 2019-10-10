@@ -3,10 +3,7 @@ Unless you’re at a Chaucer convention, speaking middle English is not going to
 
 
 
-Researchers analyzed three decades of recordings of male Savanna sparrows. And birds that changed their tune over the years did better with the ladies. The research is in the journal Animal Behaviour. [Heather Williams et al., Three decades of cultural evolution in Savannah sparrow songs]
-
-
-
+Researchers analyzed three decades of recordings of male Savanna sparrows. And birds that changed their tune over the years did better with the ladies. The research is in the journal Animal Behaviour. 
 
 While introductory notes of the sparrow’s song stayed the same, the middle and end parts changed over time. In the 1980’s, songs concluded with longer, high-pitched trills. More recent songs contain a series of clicks in the middle and a shorter, low-pitched trill at the end. 
 
