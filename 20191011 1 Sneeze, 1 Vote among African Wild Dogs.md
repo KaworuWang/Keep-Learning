@@ -20,6 +20,5 @@ African wild dogs are highly endangered—there may be just 1,400 fully grown ad
 
 —Jason G. Goldman
 
-[The above text is a transcript of this podcast.]
 
 [African Wild Dog sneeze audio courtesy of Reena H. Walker et al, http://rspb.royalsocietypublishing.org/content/284/1862/20170347]
